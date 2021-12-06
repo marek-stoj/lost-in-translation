@@ -28,9 +28,9 @@ ZWYKLE NIE BYWAM NA KONFERENCJACH. ROZMAWIAM Z LUDŹMI i czuję, jakbym rozmawia
 
 `TODO ...`
 
-...
+> I hope you can realize all of your unavowed dreams.
 
-Mam nadzieję, że zrealizujesz wszystkie swoje niezadeklarowane marzenia.
+Mam nadzieję, że zrealizujesz wszystkie swoje niewypowiedziane marzenia.
 
 ---
 
