@@ -1,5 +1,7 @@
 # Samo-realizacja poprzez organiczne uczenie się
 
+Źródło: [Self-Fulfillment Through Organic Learning](https://www.feldenkraismethod.com/self-fulfillment-organic-learning)
+
 > Edited by Mark Reese
 
 Redakcja: Mark Reese
@@ -109,7 +111,3 @@ Napisałem go, ponieważ nie wiedziałem, czego się podejmuję, że tytuł moje
 > I hope you can realize all of your unavowed dreams.
 
 Mam nadzieję, że zrealizujesz wszystkie swoje niewypowiedziane marzenia.
-
----
-
-[Source](https://www.feldenkraismethod.com/self-fulfillment-organic-learning)
