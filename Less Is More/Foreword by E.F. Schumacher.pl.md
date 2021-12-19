@@ -1,24 +1,27 @@
-LESS IS MORE? What is this? Is it the mathematics of _Alice in Wonderland_?
+MNIEJ ZNACZY WIĘCEJ? O co tu chodzi? Może o matematykę "Alicji w Krainie Czarów"?
 
-    "Take some more tea." the March Hare said to Alice earnestly.
-    "I've had nothing yet," Alice replied in an offended tone, "so I can't take more."
-    "You mean, you can't take _less_," said the Hatter; "it's very easy to take _more_ than nothing."
+    "Napij się więcej herbaty." rzekł zając marcowy do Alicji.
+    "Ale ja jeszcze w ogóle nie piłam," żachnęła się Alicja, "więc nie mogę więcej."
+    "Masz na myśli, że nie możesz _mniej_," powiedział Kapelusznik; "bardzo łatwo jest wziąć _więcej_, gdy nie wzięło się jeszcze nic."
 
-Or is it the logic of the Witches?
+A może jest to logika Wiedźm?
 
-    "Fair is fould, and foul is fair...."
+    "Złe dobre jest, a dobre – złe...."<sup>1</sup>
 
-In term of straight-line logic or mathematics, it is quite simple: nonsense. But _life_, disconcertingly and reassuringly, is bigger than straight-line logic; it conforms with a kind of _curved_ logic which turns things around and often, before you become aware of it, turns them into their opposites.
+Wedle prostolinijnej logiki, tudzież matematyki, sprawa jest prosta: nonsens. Ale _życie_ niepokojąco i uspakająco wykracza poza ramy prostolinijnej logiki; bliżej mu do _zakrzywionej_ logiki, która często wywraca rzeczy do góry nogami, zanim się zorientujesz, wykręca je na opak.
 
-    Pacifists become militants.
-    Freedom fighters become tyrants.
-    Blessings become curses.
-    Labor-saving devices become intolerable burdens.
-    Help becomes hindrance.
-    More becomes less.
+    Pacyfiści zostają bojownikami.
+    Wojownicy o wolność stają się tyranami.
+    Błogosławieństwa okazują się przekleństwami.
+    Urządzenia ułatwiające życie stają się obciążeniem nie do zniesienia.
+    Pomoc zaczyna być obciążeniem.
+    Więcej staje się mniej.
 
 As an economist, I was lucky enough to learn this many years ago. (It did not seem luck at the time, as most people thought I had gone crazy!) I learned this:
 
 Impermanent are all created things, but some are less impermanent than others. Any system of thought _that recognizes no limits_ can manifest itself only in extremely impermanent creations. This is the great charge to be laid against Materialism and its offspring, modern economics, that they _recognize no limits_ and, in addition, would be incapable of observing them if they did. This is the terror of the situation.
 
 ...
+
+---
+<sup>1</sup> W. Shakespeare, Makbet, przekł. A. Libera, Noir sur Blanc, Warszawa 2002
