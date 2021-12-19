@@ -40,23 +40,23 @@ Straight-line logic is easy; computers are very good at it. In humanity, the mos
 
 Why are we talking about these materialistic trivialities? Only because straight-line logic tends to get in the way of _Truth_. Our lives are made or marred primarily by our personal and suprapersonal relations. "Personal" means our relations with husband, wife, children, relatives, friends, colleagues, etc. "Suprapersonal" means our relations with Purposes, Aims, Aspirations, Ideals, "Powers", "Principalities" - _God_.
 
-Logic does not do much for our personal and suprapersonal relations. But it is, all the same, an indispensable tool for our material relations-how to keep the wolf from the door and how to gain, a modicum of material security in this uncertain world.
+Logic does not do much for our personal and suprapersonal relations. But it is, all the same, an indispensable tool for our _material_ relations - how to keep the wolf from the door and how to gain a modicum of material security in this uncertain world.
 
-So there is, inquestionable, straight-line logic, which we need for living. But there is also a kind of curved logic - whereby things require "measure," or they turn into their opposites - to make the living worthwhile.
+So there is, inquestionable, _straight-line_ logic, which we need for living. But there is also a kind of _curved_ logic - whereby things require "measure," or they turn into their opposites - to make the living worthwhile.
 
-And then, suddenly, it becomes possible that less is more.
+_And then, suddenly, it becomes possible that less is more._
 
-There is no greater joy in life than the discovery of (what in this context I call) curved logic. Less is more has the power of liberating you. The less you need, the less you need to worry; and the less worry there is, the better are likely to be your personal and suprapersonal relations. You don't have to join the rat race; you don't have to be a great financial success. If they raise the tax on tobacco, and you don't need tobacco-what is there to worry about?
+There is no greater joy in life than the discovery of (what in this context I call) _curved logic_. Less is more has the power of _liberating you_. The less you need, the less you need to worry; and the less worry there is, the better are likely to be your personal and suprapersonal relations. You don't _have_ to join the rat race; you don't _have_ to be a great financial success. If they raise the tax on tobacco, and you don't need tobacco - what is there to worry about?
 
-Life on this earth is not about consuming as much as we can afford, but about some very simple things, which can be expressed in very simple words like:
+Life on this earth is not about _consuming as much as we can afford_, but about some very simple things, which can be expressed in very simple words like:
 
 - Do for others what you want others to do for you;
 - Love your neighbor as you love yourself;
 - Prove all things; hold fast that which is good.
 
-Why beat about the bush? This is what life is about. More is more stands in the way of it. Less is more, even though it sounds absurd can show the way. For what we really need is so little that any system of good will can provide it. It follows that it is not so much a matter of "system" but of good will-and this depends on our own inner understanding.
+Why beat about the bush? _This_ is what life is about. _More is more_ stands in the way of it. _Less is more_, even though it sounds absurd can show the way. For what we really need is so little that any system of good will can provide it. It follows that it is not so much a matter of "system" but of good will - and this depends on our own inner understanding.
 
-The VandenBroecks have done a great job for all of us. This anthology, at the very least, shows that we are in the brst possible company when we order our lives in accordance with the principle of _voluntary simplicity_.
+The VandenBroecks have done a great job for all of us. This anthology, at the very least, shows that we are in the best possible company when we order our lives in accordance with the principle of _voluntary simplicity_.
 
 E. F. Schumacher \
 1978
