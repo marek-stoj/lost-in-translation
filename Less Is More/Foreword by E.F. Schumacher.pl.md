@@ -6,7 +6,7 @@ MNIEJ ZNACZY WIĘCEJ? O co tu chodzi? Może o matematykę "Alicji w Krainie Czar
 
 A może jest to logika Wiedźm?
 
-> "Złe dobre jest, a dobre – złe...." <sup>1</sup>
+> "Złe dobre jest, a dobre - złe...." <sup>1</sup>
 
 Wedle prostolinijnej logiki, tudzież matematyki, sprawa jest prosta: nonsens. Ale _życie_ niepokojąco i uspakająco wykracza poza ramy prostolinijnej logiki; bliżej mu do _zakrzywionej_ logiki, która często wywraca rzeczy do góry nogami, zanim się zorientujesz, wykręca je na opak.
 
