@@ -19,18 +19,18 @@ Wedle prostolinijnej logiki, tudzież matematyki, sprawa jest prosta: nonsens. A
 
 Jako ekonomiście, poszczęściło mi się, że zrozumiałem to już lata temu. (Wówczas jednak nie wyglądało to jak szczęśliwy traf, bowiem wiekszość ludzi myślała, że zwariowalem!)
 
-Impermanent are all created things, but some are less impermanent than others. Any system of thought _that recognizes no limits_ can manifest itself only in extremely impermanent creations. This is the great charge to be laid against Materialism and its offspring, modern economics, that they _recognize no limits_ and, in addition, would be incapable of observing them if they did. This is the terror of the situation.
+Wszystkie stworzone rzeczy są nietrwałe, lecz jedne są bardziej nietrwałe od innych. Każdy system myśli, _który nie uznaje żadnych ograniczeń_, może przejawiać się jedynie poprzez ekstremalnie nietrwałe twory. To właśnie jest wielkie oskarżenie rzucone w stronę Materializmu i jego potomstwa, współczesnej ekonomii, że nie _uznają żadnych ograniczeń_ i, co więcej, nie byłyby w stanie ich zaobserwować, nawet gdyby było inaczej.
 
-Self-imposed limits, voluntary restraint, conscious limitation - these are life-giving and life-preserving forces. The _New Economics_ of which we stand in need would be based on the recognition.
+Granice nałożone przez siebie, dobrowolne powstrzymywanie się, świadome ograniczenia - to są siły zarówno dające, jak i podtrzymujące życie. Nowa Ekonomia, której tak bardzo potrzebujemy, bazowałaby na uznawaniu.
 
-- that economic progress is healthy only "up to a point";
-- that the complication of life is permissible only "up to a point";
-- that the pursuit of efficiency or productivity is good only "up to a point";
-- that the use of nonrenewable resources is wise only "up to a point";
-- that specialization is compatible with human integrity only "up to a point";
-- that the substitution of "scientific method" for common sense is bearable only "up to a point";
+- że ekonomiczny postęp jest zdrowy tylko "do pewnego stopnia";
+- że komplikowanie życia dopuszczalne jest tylko "do pewnego stopnia";
+- że pogoń za efektywnością czy produktywnością jest dobry tylko "do pewnego stopnia";
+- że eksploatacja nieodnawialnych zasobów jest mądre tylko "do pewnego stopnia";
+- że specjalizacja jest kompatybilna z ludzką naturą tylko "do pewnego stopnia";
+- że stawianie "metody naukowej" nad zdrowy rozsądek jest znośne tylko "do pewnego stopnia";
 
-and so on and so forth, never forgetting that all these "points" lie far lower on the scale than most people dare to think.
+i tak dalej, i tak dalej, pamiętając o tym, że wszystkie te "punkty" leżą znacznie niżej na skali niż większość ludzi jest skłonna przyznać.
 
 Yes, indeed, the New Economics would be a veritable "Statute of Limitation" - and that means a "Statute of Liberation".
 
