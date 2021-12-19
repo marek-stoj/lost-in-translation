@@ -17,7 +17,7 @@ Wedle prostolinijnej logiki, tudzież matematyki, sprawa jest prosta: nonsens. A
 > Pomoc zaczyna być obciążeniem.
 > Więcej staje się mniej.
 
-As an economist, I was lucky enough to learn this many years ago. (It did not seem luck at the time, as most people thought I had gone crazy!) I learned this:
+Jako ekonomiście, poszczęściło mi się, że zrozumiałem to już lata temu. (Wówczas jednak nie wyglądało to jak szczęśliwy traf, bowiem wiekszość ludzi myślała, że zwariowalem!)
 
 Impermanent are all created things, but some are less impermanent than others. Any system of thought _that recognizes no limits_ can manifest itself only in extremely impermanent creations. This is the great charge to be laid against Materialism and its offspring, modern economics, that they _recognize no limits_ and, in addition, would be incapable of observing them if they did. This is the terror of the situation.
 
