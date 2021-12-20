@@ -10,11 +10,11 @@ A może jest to logika Wiedźm?
 
 Wedle prostolinijnej logiki, tudzież matematyki, sprawa jest prosta: nonsens. Ale _życie_ niepokojąco i uspakająco wykracza poza ramy prostolinijnej logiki; bliżej mu do _zakrzywionej_ logiki, która często wywraca rzeczy do góry nogami, zanim się zorientujesz, wykręca je na opak.
 
-> Pacyfiści zostają bojownikami.
-> Wojownicy o wolność stają się tyranami.
-> Błogosławieństwa okazują się przekleństwami.
-> Urządzenia ułatwiające życie stają się obciążeniem nie do zniesienia.
-> Pomoc zaczyna być obciążeniem.
+> Pacyfiści zostają bojownikami. \
+> Wojownicy o wolność stają się tyranami. \
+> Błogosławieństwa okazują się przekleństwami. \
+> Urządzenia ułatwiające życie stają się obciążeniem nie do zniesienia. \
+> Pomoc zaczyna być obciążeniem. \
 > Więcej staje się mniej.
 
 Jako ekonomiście, poszczęściło mi się, że zrozumiałem to już lata temu. (Wówczas jednak nie wyglądało to jak szczęśliwy traf, bowiem wiekszość ludzi myślała, że zwariowalem!)
