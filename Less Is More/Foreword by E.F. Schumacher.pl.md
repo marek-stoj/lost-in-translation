@@ -32,11 +32,11 @@ Granice nałożone przez siebie, dobrowolne powstrzymywanie się, świadome ogra
 
 i tak dalej, i tak dalej, pamiętając o tym, że wszystkie te "punkty" leżą znacznie niżej na skali niż większość ludzi jest skłonna przyznać.
 
-Yes, indeed, the New Economics would be a veritable "Statute of Limitation" - and that means a "Statute of Liberation".
+Tak, w rzeczy samej, Nowa Ekonomia byłaby istnym "Statutem Ograniczeń" - a to oznacza "Statut Wyzwolenia".
 
-At that time - it was February 1955 - I concluded my remarks with the Buddhist formula: "May All Beings Be Happy." How unhappy they have become since t hose "hard times," more than twenty years ago!
+W tamtym czasie - to jest w lutym 1955 - podsumowalem swoje rozważania buddyjską formułką: "Niechaj Wszystkie Istoty Będą Szczęśliwe." Jakże nieszczęśliwe one się stały od tamtych "trudnych czasów", ponad 20 lat temu!
 
-Straight-line logic is easy; computers are very good at it. In humanity, the most logical creatures are small children: They are wonderfully, almost infallibly _logical_. "More is more, and less is less" - no doubt about it. As we grow older, into maturity (not all of us do so!), we are able to _transcend_ straight-line logic, which does not mean losing it but keeping it in its own very modest place. And then (unless there is a case of _arrested development_) we are able to see that _less may be more_ - indeed, that less is more when you are already, as an average American, consuming fifty times as much as an average Indian.
+Logika prostolinijna jest prosta; komputery bardzo dobrze sobie z nią radzą. Jeśli chodzi o ludzkość, najbardziej kreatywnymi stworzeniami są małe dzieci: Są one cudownie, niemal niezawodnie, _logiczne_. "Więcej znaczy więcej, a mniej znaczy mniej" - nie ma tu miejsca na wątpliwości. Wraz z wiekiem stajemy się dojrzalsi (acz nie wszystkich to dotyczy!) i jesteśmy w stanie _wznieść się ponad_ prostolinijną logikę, co nie oznacza jednak, że ją tracimy, ale trzymamy ją w jej własnym, skromnym miejscu. I wtedy właśnie (chyba że mamy do czynienia ze _wstrzymanym rozwojem_) jesteśmy w satnie dostrzec, że _mniej może znaczyć więcej_ - istotnie, mniej naprawdę oznacza więcej, gdy jako przeciętny Amerykanin konsumujesz pięćdziesiąt razy więcej od przeciętnego Hindusa.
 
 Why are we talking about these materialistic trivialities? Only because straight-line logic tends to get in the way of _Truth_. Our lives are made or marred primarily by our personal and suprapersonal relations. "Personal" means our relations with husband, wife, children, relatives, friends, colleagues, etc. "Suprapersonal" means our relations with Purposes, Aims, Aspirations, Ideals, "Powers", "Principalities" - _God_.
 
