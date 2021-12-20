@@ -40,26 +40,27 @@ Logika prostolinijna jest prosta; komputery bardzo dobrze sobie z nią radzą. J
 
 Czemuż to mówiny o tych materialistycznych błahostkach? Ano dlatego, iż prostolinijna logika często staje na drodze _Prawdzie_. Nasze życia tworzone są, tudzież, szpecone, przede wszystkim poprzez nasze osobiste oraz ponadosobiste relacje. Przez "osobiste" należy rozumieć nasze relacje z mężem, żoną, dziećmi, krewnymi, przyjaciółmi, znajomymi, itp. Przez "ponadosobiste" zaś nasze relacje z Celami, Zamiarami, Aspiracjami, Ideałami, "Mocami", "Pryncypiami" - _Bogiem_.
 
-Logic does not do much for our personal and suprapersonal relations. But it is, all the same, an indispensable tool for our _material_ relations - how to keep the wolf from the door and how to gain a modicum of material security in this uncertain world.
+Logika niewiele robi dla naszych osobistych i ponadosobistych relacji. Jest jednak, mimo wszystko, nieodzownym narzędziem w naszych _materialnych_ relacjach - jak nie dopuścić wilka do drzwi i jak zapewnić sobie choć odrobinę materialnego bezpieczeństwa w tym niepewnym świecie.
 
-So there is, inquestionable, _straight-line_ logic, which we need for living. But there is also a kind of _curved_ logic - whereby things require "measure," or they turn into their opposites - to make the living worthwhile.
+Istnieje więc niezaprzeczalna, prostolinijna logika, która jest nam potrzebna do życia. Ale istnieje również pewien rodzaj _zakrzywionej_ logiki - dzięki której rzeczy wymagają "środków" bo inaczej zamieniają się w swoje przeciwieństwa - aby życie miało sens.
 
-_And then, suddenly, it becomes possible that less is more._
+_I wtedy, nagle, staje się możliwe, że mniej znaczy więcej._
 
-There is no greater joy in life than the discovery of (what in this context I call) _curved logic_. Less is more has the power of _liberating you_. The less you need, the less you need to worry; and the less worry there is, the better are likely to be your personal and suprapersonal relations. You don't _have_ to join the rat race; you don't _have_ to be a great financial success. If they raise the tax on tobacco, and you don't need tobacco - what is there to worry about?
+Nie ma większej radości w życiu niż odkrycie (co w tym kontekście nazywam) _zakrzywionej logiki_. Mniej znaczy więcej ma moc _wyzwolenia Ciebie_. Im mniej potrzebujesz, tym mniej musisz się martwić; a im mniej jest zmartwień, tym większe prawdopodobieństwo, że lepsze są twoje osobiste i ponadosobiste relacje. Nie _musisz_ dołączać do wyścigu szczurów; nie _musisz_ odnosić wielkiego sukcesu finansowego. Jeśli podniosą podatek od tytoniu, a Ty nie potrzebujesz tytoniu - czym tu się martwić?
 
-Life on this earth is not about _consuming as much as we can afford_, but about some very simple things, which can be expressed in very simple words like:
+Życie na tej ziemi nie polega na _konsumowaniu tak dużo, na ile nas stać_, ale na kilku bardzo prostych rzeczach, które można wyrazić w bardzo prostych słowach, takich jak:
 
-- Do for others what you want others to do for you;
-- Love your neighbor as you love yourself;
-- Prove all things; hold fast that which is good.
+- Czyń innym to, co chcesz, aby inni czynili Tobie;
+- Kochaj bliźniego swego, jak siebie samego;
+- Sprawdzaj wszystko; trzymaj się tego, co dobre.
 
-Why beat about the bush? _This_ is what life is about. _More is more_ stands in the way of it. _Less is more_, even though it sounds absurd can show the way. For what we really need is so little that any system of good will can provide it. It follows that it is not so much a matter of "system" but of good will - and this depends on our own inner understanding.
+Po co owijać w bawełnę? O _to_ właśnie chodzi w życiu. _Więcej znaczy więcej_ stoi temu na przeszkodzie. _Mniej znaczy więcej_, mimo że brzmi absurdalnie, może wskazywać drogę. Potrzebujemy naprawdę niewiele i dlatego każdy system oparty na dobrej woli może nam to zapewnić. Wynika z tego, że nie tyle chodzi o "system", co o dobrą wolę właśnie - a ta zależy od naszego wewnętrznego zrozumienia.
 
-The VandenBroecks have done a great job for all of us. This anthology, at the very least, shows that we are in the best possible company when we order our lives in accordance with the principle of _voluntary simplicity_.
+VandenBroeckowie wykonali wspaniałą pracę dla dobra nas wszystkich. Ta antologia pokazuje, co najmniej, że gdy będziemy układać nasze życia zgodnie z zasadą _dobrowolnej prostoty_, znajdziemy się w doborowym towarzystwie.
 
 E. F. Schumacher \
 1978
 
 ---
+
 <sup>1</sup> W. Shakespeare, _Makbet_, przekł. A. Libera, _Noir sur Blanc_, Warszawa 2002
