@@ -11,4 +11,4 @@ by Goldian VandenBroeck
 
 ## English version
 
-- [Foreword](https://github.com/marek-stoj/lost-in-translation/blob/main/Less%20Is%20More/Foreword%20by%20E.F.%20Schumacher.en.md)
+- [Foreword](https://github.com/marek-stoj/lost-in-translation/blob/main/Less%20Is%20More/Foreword%20by%20E.%20F.%20Schumacher.en.md)
