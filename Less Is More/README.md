@@ -8,3 +8,7 @@ by Goldian VandenBroeck
 ## Wersja polska
 
 - [Przedmowa](https://github.com/marek-stoj/lost-in-translation/blob/main/Less%20Is%20More/Foreword%20by%20E.F.%20Schumacher.pl.md)
+
+## English version
+
+- [Foreword](https://github.com/marek-stoj/lost-in-translation/blob/main/Less%20Is%20More/Foreword%20by%20E.F.%20Schumacher.en.md)
