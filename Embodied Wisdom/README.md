@@ -4,6 +4,6 @@ https://www.amazon.com/Embodied-Wisdom-Collected-Papers-Feldenkrais/dp/155643906
 
 ## Wersja polska
 
-### CZĘŚĆ 1: Artykuły
+### CZĘŚĆ 1: Artykuły
 
-[7. Samo-realizacja poprzez organiczne uczenie się](https://github.com/marek-stoj/lost-in-translation/blob/main/Embodied%20Wisdom%20by%20Moshe%20Feldenkreis/pl/Article-1.7.Samo-realizacja-poprzez-organiczne-uczenie-sie.md)
+1.7. [Samo-realizacja poprzez organiczne uczenie się](https://github.com/marek-stoj/lost-in-translation/blob/main/Embodied%20Wisdom/Self-Fulfillment-Through-Organic-Learning.pl.md)
